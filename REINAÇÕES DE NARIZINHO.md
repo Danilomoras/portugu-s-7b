@@ -1,0 +1,5 @@
+Monteiro Lobato e rasitar
+Como viveriam Emília, Tia Nastácia, Dona Benta e outras personagens icônicas do escritor Monteiro Lobato se vivessem na atualidade? Para a bisneta do autor, Cleo Monteiro Lobato, o universo criado no Sítio do Picapau Amarelo seria mais inclusivo e consciente. A escritora está prestes a lançar uma adaptação do clássico centenário “A Menina do Narizinho Arrebitado”, onde trata com mais delicadeza a forma como a personagem Tia Nastácia fora retratada na obra, excluindo falas consideradas racistas. O livro “Narizinho Arrebitado” será lançado nesta sexta-feira (4). 
+
+Formada em História pela USP, Cleo Monteiro Lobato diz que passou a sentir a necessidade de apresentar as obras de seu bisavô para o público dos Estados Unidos, numa tentativa de desmistificar alguns conceitos criados pelos americanos em relação ao Brasil e aos brasileiros. Entretanto, deparou-se com algumas barreiras ao traduzir a obra para o Inglês, e decidiu criar uma versão adaptada também para o público no Brasil. 
+![[IMG_20220919_083011.jpg]]
